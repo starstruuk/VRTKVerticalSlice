@@ -9,4 +9,4 @@ Cheers!
 
 Edit: Still don't have an Oculus Rift, however I do have some clips that I had recorded from a while back, check them out!
 
-Link: 
+Link: https://youtu.be/eOGpbSK9GYo
